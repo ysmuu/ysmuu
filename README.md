@@ -5,7 +5,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgur.com/4kEtaQo.png"  />
+<img align="right" height="150" src="https://i.imgur.com/wTvUBMk.jpeg"  />
 
 ###
 
